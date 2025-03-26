@@ -5,4 +5,4 @@ under his supervision, we completed this course assignment in team collaboration
 We are:
 H.M.Ashis Rahman(ID:242-35-407),
 Redwan Ahmed(ID:242-35-549),
-Md.Sadiqul Haque Himel(ID:242-35-805).
+Md.Sadiqul Haq Himel(ID:242-35-805).
